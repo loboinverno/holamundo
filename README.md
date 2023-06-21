@@ -2,4 +2,4 @@
 
 mi primer reposotorio GitHhub
 
-me gutan los :videojuegos:
+me gutan los 🎮
