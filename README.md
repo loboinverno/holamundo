@@ -7,3 +7,5 @@ me gutan los: 🎮
 me gusta el: 🍨
 
 soy de 🇦🇷
+
+soy mendocino
