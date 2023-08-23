@@ -10,3 +10,4 @@ soy de 🇦🇷
 
 soy mendocino 
 
+me gusta el 🍷
